@@ -48,4 +48,4 @@
 ## PENDAHULUAN 
 
 #### 1.1 Latar Belakang
-#### Sejak awal perkembangan
+#### Sejak awal perkembangan peradaban manusia, agama dan sains merupakan dua sistem pengetahuan yang memiliki
